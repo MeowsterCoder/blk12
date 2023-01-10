@@ -7,4 +7,4 @@ I use the Japanese name of my character as my alias.
 
 - Read more about my [Blog](https://culla.net/)
 - Talk with me by [Email](mailto:yukino@culla.net) or [Telegram](https://t.me/Yukino_OvO)
-- Follow me on [Twitter](https://twitter.com/Yukino_OvO) or [bilibili](https://space.bilibili.com/562403)
+- Follow me on [Twitter](https://twitter.com/Yukino_OvO) [bilibili](https://space.bilibili.com/562403) or [pixiv](https://www.pixiv.net/users/8347001)
